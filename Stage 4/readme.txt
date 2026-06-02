@@ -1,0 +1,1 @@
+Wait for the part two on my website https://neagle.xyz/blog/ ;) 

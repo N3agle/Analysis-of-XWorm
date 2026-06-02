@@ -1,0 +1,1 @@
+Have look on my website for the analyis https://neagle.xyz/blog/
